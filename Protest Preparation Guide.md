@@ -8,7 +8,9 @@ I've put together this guide to help people prepare at different levels of invol
 
 I think there are multiple levels of preparedness and I will cover the first 2 in detail:
 
-**Level 1:** You want to march but if it gets a little wild you are ducking out of there. If you are looking around and observing what the police are doing and how they are dressed, you can usually figure out if it's about to get wild.
+**Level 0:** You want to show up, have your voice heard, and maybe meet some like-minded people. Most protests are completely uneventful - you march, you chant, you go home.
+
+**Level 1:** You want to march with a bit more preparation - you're thinking about contingencies and what-ifs. If it gets a little wild you are ducking out of there. If you are looking around and observing what the police are doing and how they are dressed, you can usually figure out if it's about to get wild.
 
 **Level 2:** You want to march and stick around some if it gets wild.
 
@@ -33,6 +35,18 @@ Before attending any protest, familiarize yourself with your legal rights. Under
 - You do not have to consent to a search of yourself or belongings
 - If arrested, you have the right to an attorney - ask for one immediately
 - Police cannot delete your photos or videos without a court order
+
+---
+
+## Level 0: Just Show Up
+
+The most important thing you can do is show up. The vast majority of people who attend protests have zero problems - they march, they chant, they connect with others who share their values, and they go home.
+
+Protests can be energizing, community-building experiences. There's something powerful about standing alongside others who care about the same issues you do. You might make new friends, learn about local organizations doing good work, or simply feel less alone in your beliefs.
+
+Don't let the preparation advice in the rest of this guide intimidate you. Most of it is for edge cases and worst-case scenarios. For many protests, you can literally just show up, walk around, hold a sign, and leave whenever you want. That's it. Your presence matters and adds to the collective voice.
+
+If you're new to protesting, find a permitted daytime march in a public space - these tend to be the most straightforward and family-friendly. Have fun with it.
 
 ---
 
