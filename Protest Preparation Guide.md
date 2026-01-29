@@ -1,6 +1,5 @@
 # Protest Preparation Guide: Levels of Readiness
 
-I've put together this guide to help people prepare at different levels of involvement. Let me know about any changes or additions you would make to this list - I'm happy to consider and edit this. Please feel free to share or repost.
 
 ---
 
@@ -173,7 +172,7 @@ We also carried juice boxes. It's amazing how much a juice box can help calm som
 
 ## Level 3b: Front-Line Defensive
 
-You're sticking around when it gets wild and you want to be front-line defensive. I have no experience here but I've seen more body padding (elbow and knee pads, chest and back protectors) or body armor (you're now thinking bullets are flying), defensive shields, lasers to help point out trouble to others, communication surveillance and jammers, and perhaps weapons to help fight back against illegal attacks against you and others.
+You're sticking around when it gets wild and you want to be front-line defensive. I have no experience here but I've seen more body padding (elbow and knee pads, chest and back protectors) or body armor (you're now thinking bullets are flying), defensive shields, eye safe laser pointers (class 1) to help point out trouble to others, communication surveillance and jammers, and perhaps weapons to help fight back against illegal attacks against you and others.
 
 **Important:** The legality of some of this equipment and these activities is very questionable and varies significantly by jurisdiction. Body armor, shields, jammers, lasers, and weapons may be illegal to possess or use in your area, especially at protests. Research your local laws carefully and understand the legal risks you may be taking.
 
